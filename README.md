@@ -61,7 +61,7 @@ Summer 2026: designing AI literacy courses for kids, teens, professionals, and r
 
 - Email: valeria030605@gmail.com
 - LinkedIn: [linkedin.com/in/valeria-pérez-alonso](https://www.linkedin.com/in/valeria-perez-alonso/)
-- Open to: **remote part-time roles & freelance projects** in AI, EdTech, or cognitive tech
+- Open to: **remote part-time roles & freelance projects** in AI, EdTech, or cognitive tech. Also, if you have a project or idea, please DM me.
 
 ---
 
